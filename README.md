@@ -1,1 +1,0 @@
-# recopilaci-n-de-informaci-n
